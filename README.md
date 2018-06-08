@@ -1,0 +1,1 @@
+Hanya tersedia dalam Bahasa Indonesia wkwk
